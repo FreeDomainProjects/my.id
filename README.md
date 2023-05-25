@@ -1,2 +1,2 @@
-# my.id
-Dapatkan domain .my.id gratis amda sekarang! Tersedia untuk semua orang
+# FREE .MY.ID DOMAIN
+DAPATKAN DOMAIN GRATIS .MY.ID ANDA SEKARANG! DAPATKAN DOMAIN PREMIUM DENGAN HUBUNGI KAMI KE matchboxid@proton.me
